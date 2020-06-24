@@ -11,6 +11,9 @@ ausdauernd, sportbegeistert, kinder- und tierlieb.
 * isst gern Schnitzel
 * fährt gern Rad
 
+> Wer nicht Alles gibt, gibt Nichts!
+
+
 
 
 
